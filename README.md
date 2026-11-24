@@ -1,5 +1,5 @@
 # 💫 About Me:
-beginner game developer
+cs student in france
 
 
 ## 🌐 Socials:
